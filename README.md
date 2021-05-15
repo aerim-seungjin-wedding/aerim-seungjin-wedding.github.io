@@ -1,1 +1,1 @@
-# aerim-seungjin-wedding.github.io
+홍애림과 신승진의 결혼식에 초대합니다.
